@@ -6,12 +6,6 @@ Record and Recent Form: Volkanovski (26-4) is a former UFC featherweight champ
 Motivation: Volkanovski is 36 and admitted this might be his last opportunity to win the title back. He has taken on the persona of “Old Man Volk,” wanting to show that he can still mix it up at the top level. He still believes he can outlast young opponents with experience and tactical acumen.
 
 
-💻Best Streams for PC/MAC  
-🔴[SiteVisit](https://tinyurl.com/GithubUFC)
-
-📲Mobile  Friendly
-🔴[SiteVisit](https://tinyurl.com/GithubUFC)
-
 Diego Lopes' Rise
 Record and momentum: Lopes (26-6) has won five in a row, beating Dan Ige and Brian Ortega, among others. Famed for his aggressive style and thunderous power, Lopes has skyrocketed through the featherweight divisions after first signing for the UFC less than two years ago.
 Fighting Style: Lopes is a destroyer on the feet, and with elite jiu-jitsu skills, he is dangerous on the ground, as well. That said, there have been lingering questions about his cardio, though he did look better on that front in his most recent foes.
